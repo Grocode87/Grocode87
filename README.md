@@ -17,9 +17,9 @@ I have been working on personal project for a long time. Each of these projects 
 
 ## 📫 Social links
 
-I'm always open to discussing new technologies, project ideas, or opportunities to collaborate. Feel free to connect with me through:
+Feel free to get in touch with me or learn more about me with any of the links below!
 
-- [colin.grob87@gmail.com](colin.grob87@gmail.com)
+- [Email](colin.grob87@gmail.com)
 - [Website](https://colingrob.me)
 - [LinkedIn](https://www.linkedin.com/in/colin-grob/)
 
